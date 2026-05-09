@@ -1,5 +1,3 @@
-# Privacy Policy – Apna Setu
-
 **Last updated:** 2026
 
 Apna Setu ("we", "our", or "us") operates the Apna Setu mobile application. This page informs users regarding our policies with the collection, use, and disclosure of Personal Information.
